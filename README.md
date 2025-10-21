@@ -1,0 +1,2 @@
+# typoLawfirmmultipg
+GitHub Pages
